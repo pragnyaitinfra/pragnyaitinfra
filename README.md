@@ -18,3 +18,13 @@ reduce costs and improve profit, the plan and execute.
 When you need expert assistance, our IT consulting offers local presence, deep resources, and exceptional expertise. 
 
 Please contact us to see how we can help you meet your business needs.
+
+IT & Network Managed Services
+We focus on technology. So you can focus on your business.
+
+Cloud & Digital Acceleration and Migration
+Simplify IT, simplify your life
+
+Business and Financial Consulting Services (BI & Data Analytics)
+Think fast, go farther with our simple solutions to finance
+
